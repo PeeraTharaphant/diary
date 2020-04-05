@@ -3,4 +3,4 @@
 - 01/04/2020
 - 02/04/2020
 
-![เบอเกอร์](https://photos.google.com/photo/AF1QipMgKA8aiz5r4rtnyowN2yskoV_kYlmT12grwP-r)
+![เบอเกอร์](https://www.freshnessburger.co.jp/images/menu/thumb/classic_burger.jpg)
